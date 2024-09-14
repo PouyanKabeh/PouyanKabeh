@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @PouyanKabeh
 - 👀 I’m interested in Developing
 - 🌱 I’m currently learning NodeJS, Unity
-- 📫 You can contact me on discord
+- 📫 You can contact me on Discord
 - 😄 Pronouns: He/Him
 - ⚡ Favorite: Developing, Discord Role Playing
 
