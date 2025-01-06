@@ -5,10 +5,5 @@
 - 📫 You can contact me on Discord
 - 😄 Pronouns: He/Him
 - ⚡ Favorite: Developing, Discord Role Playing
-
-# Roleplay Information :
-## ⚠️ Disclaimer : Its Only for game and not real!!
-- 🌱 Ideology : Monarchism
-- 📛 Name : Mohammad Reza Pahlavi (Pahlavi II)
-- 🌐 Discord Server : https://discord.gg/pahlavi
+- 🌐 Find Me At : karlancer.com
   
