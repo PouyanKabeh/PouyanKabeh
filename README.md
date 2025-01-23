@@ -6,4 +6,4 @@
 - 😄 Pronouns: He/Him
 - ⚡ Favorite: Developing, Discord Role Playing
 - 🌐 Find Me At : karlancer.com
-  
+- 🤖 Discord Bot : discord.gg/modstar
