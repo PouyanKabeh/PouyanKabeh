@@ -5,5 +5,5 @@
 - 📫 You can contact me on Discord
 - 😄 Pronouns: He/Him
 - ⚡ Favorite: Developing, Discord Role Playing
-- 🌐 Find Me At : karlancer.com
-- 🤖 Discord Bot : discord.gg/modstar
+- 🌐 Find Me At : https://karlancer.com
+- 🤖 Discord Bot : https://discord.gg/modstar
